@@ -37,7 +37,7 @@ Dependency Case Manager, October 2007–June 2008 <br />
 *Children’s Home Society* <br />
 Assessed client needs and developed service plans <br />
 Provided resources to children and their families <br />
-Made recommendations at court regarding reunification or other permanency plans <br 
+Made recommendations at court regarding reunification or other permanency plans
 
     
 **REFERENCES**
