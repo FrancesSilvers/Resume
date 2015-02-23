@@ -1,6 +1,3 @@
-# Resume
-Resume for Ada Developers Academy
-
 **FRANCES L. SILVERS** <br /> 
 1703 Harvard Avenue Apt 12 <br /> 
 (407) 325-3031 <br /> 
