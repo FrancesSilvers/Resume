@@ -47,6 +47,6 @@ amy.ballot@gmail.com <br />
 407-493-2300
 
 Christine Wise, M.A., CCC-SLP <br />
-Pathways Therapy Center <br />                
+Pathways Therapy Center <br />
 christine@pathwaystherapycenter.com <br />
 719-287-9628
