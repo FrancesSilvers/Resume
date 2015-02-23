@@ -42,10 +42,11 @@ Made recommendations at court regarding reunification or other permanency plans 
     
 **REFERENCES**
 <br/>Amy Ballot, M.A., CCC-SLP <br /> 
-Aegis Therapies <br />                                                                                                                Delaney Park Health and Rehabilitation Center, Orlando, FL <br />
+Select Medical <br />
 amy.ballot@gmail.com <br />
 407-493-2300
 
-Patricia Smith, M.A., CCC-SLP <br />
-Whole-Sum Therapies, Inc., Orlando, FL <br />                                                  pattysmithprivate@yahoo.com <br />
-407-267-6006
+Christine Wise, M.A., CCC-SLP <br />
+Pathways Therapy Center <br />                
+christine@pathwaystherapycenter.com <br />
+719-287-9628
